@@ -2,3 +2,4 @@
 penis
 pizda
 huy
+debil blyat
