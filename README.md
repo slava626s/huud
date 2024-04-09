@@ -6,3 +6,4 @@ debil blyat
 debil
 fargot
 maks daushiy
+vsem msks dast
